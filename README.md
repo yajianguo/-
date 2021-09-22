@@ -11,7 +11,6 @@
 
 ✨✨✨✨✨✨✨✨✨ 需要源码加QQ好友：1483832850 ✨✨✨✨✨✨✨✨✨✨✨✨✨✨✨
 
-![gh_5691f444c373_344](https://user-images.githubusercontent.com/19249395/112572827-fb8a2180-8e25-11eb-9f78-031d66f6aa43.jpg)
 
 ![1281616727937_ pic](https://user-images.githubusercontent.com/19249395/112572863-152b6900-8e26-11eb-8539-dff5b53d5579.jpg)
 
